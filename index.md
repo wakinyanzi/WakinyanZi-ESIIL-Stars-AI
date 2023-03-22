@@ -1,9 +1,11 @@
 
 # **Elisha Wakinyan Zi**
 
+![Me at the EPSCoR/NSF conference in Portland, Maine. 2022](selfie_maine.jpg)
+
 [MyGitHubProfile](https://github.com/wakinyanzi/WakinyanZi)
 
-![Me at the EPSCoR/NSF conference in Portland, Maine. 2022](selfie_maine.jpg)
+
 
 ## Contact Information
 * Email: eyellowthunder@gmail.com
