@@ -26,8 +26,9 @@ I was raised by grandmother Amelia Yellow Thunder in Wakpamni Lake, SD
 I am a proud graduate of Oglala Lakota College, receiving my bachelors in Natural Science May 2020, as the pandemic began. My graduation ceremony was via Zoom link. 
 I am pursuing my Masters in Natural Resource Management at South Dakota State University, Modeling Contaminant Transport for risk assessment in the Arikaree aquifer, the main source of water for the Oglala.
 
-## 
-> I am the mother of three beautiful adults, Laila, Ikeghe Luta, and Ivy Jade. They reside in Omaha, Ne with their Ate. 
+## *Wiconi Mitawa kin* (My Life)
+> I am the mother of three beautiful adults, Laila, Ikeghe Luta, and Ivy Jade.
+> I have one cat daughter named Katalina Inez, a cat son named Johnny Rotten Manafort Red Corn Cash Depp Yellow Thunder, and a dog son named Codey "python codes" Winkworth. I make my humble home with the love of my life Joshua. 
 ## The Return of the AI
 > It has been quite a journey as one of the first on the ESIIL program. Our first project was COVID - 19 data. Our lives were never the same. Last year we worked on church location data and filling archival gaps in our history on the reservation through this story. Again, my life was not the same after. These codes are a new way of bringing medicine
 > 
