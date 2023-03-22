@@ -19,6 +19,7 @@ What I said in Lakota is:
 I am an Oglala Lakota woman
 I come from a sacred land called the Black Hills, where Yellow Thunder camp used to be. 
 I was raised by grandmother Amelia Yellow Thunder in Wakpamni Lake, SD
+>
 I am a proud graduate of Oglala Lakota College, receiving my bachelors in Natural Science May 2020, as the pandemic began. My graduation ceremony was via Zoom link. 
 I am pursuing my Masters in Natural Resource Management at South Dakota State University, Modeling Contaminant Transport for risk assessment in the Arikaree aquifer, the main source of water for the Oglala.
 >
