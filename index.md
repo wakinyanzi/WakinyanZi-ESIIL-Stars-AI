@@ -29,7 +29,9 @@ I am pursuing my Masters in Natural Resource Management at South Dakota State Un
 ## *Wiconi Mitawa kin* (My Life)
 > I am the mother of three beautiful adults, Laila, Ikeghe Luta, and Ivy Jade.
 > I have one cat daughter named Katalina Inez, a cat son named Johnny Rotten Manafort Red Corn Cash Depp Yellow Thunder, and a dog son named Codey "python codes" Winkworth. I make my humble home with the love of my life Joshua. 
+> I am a maker at heart. My brain is scientist, my heart is making. I love to create pieces that Leksi Jhon Goes In Center calls, 
+> > *"art of personal adornment"* which is translated as our regalia. (INSERT PIC HERE). I make to give away and mostly just pass my pieces on to family and friends. It is a Lakota lifeway to give and be thankful so I try to emanate that as much as possible. 
 ## The Return of the AI
-> It has been quite a journey as one of the first on the ESIIL program. Our first project was COVID - 19 data. Our lives were never the same. Last year we worked on church location data and filling archival gaps in our history on the reservation through this story. Again, my life was not the same after. These codes are a new way of bringing medicine
+> It has been quite a journey as one of the first on the ESIIL program. Our first project was COVID - 19 data. Our lives were never the same. Last year we worked on church location data and filling archival gaps in our history on the reservation through this story. Again, my life was not the same after. I see these codes as a new way of bringing medicine to the Oyanke. We can adapt and evolve with these tools the same our ancestors adapted and evolved with new technology of their time. 
 > 
 > As an advanved intern, I am so excited to see the project ideas that the students will come up with. It is always so exciting when everyone catches on and the codes start looking pretty. I am looking forward to learning how to do more geospatial analysis in this coding world and getting more comfortable with utlizing it daily. 
