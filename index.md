@@ -1,3 +1,3 @@
 ## Elisha Wakinyan Zi
-![](IMG_0174.JPG)
+![](selfie_maine.jpg)
 [MyGitHubProfile](https://github.com/wakinyanzi/WakinyanZi)
