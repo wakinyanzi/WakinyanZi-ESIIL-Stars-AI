@@ -3,7 +3,7 @@
 
 [MyGitHubProfile](https://github.com/wakinyanzi/WakinyanZi)
 
-![](selfie_maine.jpg)
+![Me at the EPSCoR/NSF conference in Portland, Maine. 2022](selfie_maine.jpg)
 
 ## Contact Information
 * Email: eyellowthunder@gmail.com
