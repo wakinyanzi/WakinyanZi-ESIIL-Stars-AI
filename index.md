@@ -13,6 +13,7 @@
 * Slack: Elisha YellowThunder
 * LinkedIn: Elisha L. Wakinyan Zi
 
+## About me
 > *Oglala Lakota winyan hemaca na
 makoce wakan kin He sapa heciyantanhan na Wakinyan Zi wicoti kinhan ka
 Wakpamni Lake SD Unci Amelia Yellow Thunder el kichi emacage*
