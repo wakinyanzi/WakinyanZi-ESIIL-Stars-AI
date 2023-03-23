@@ -31,7 +31,7 @@ I am pursuing my Masters in Natural Resource Management at South Dakota State Un
 > I have one cat daughter named Katalina Inez, a cat son named Johnny Rotten Manafort Red Corn Cash Depp Yellow Thunder, and a dog son named Codey "python codes" Winkworth. I make my humble home with the love of my life Joshua.
 > INSERT PICS OF THE BABIES AND ME AND JOSH HERE
 > I am a maker at heart. My brain is scientist, my heart is making. I love to create pieces that Leksi Jhon Goes In Center calls, 
-> ###*"The art of personal adornment"*###.
+> **"The art of personal adornment"**.
 > I make to add pieces to my regalia but mostly to give away to family and friends. It is a Lakota lifeway to give and be thankful so I try to emanate that as much as possible. 
 > ### Pics of my work. I really enjoy sharing my pieces.
 >  
