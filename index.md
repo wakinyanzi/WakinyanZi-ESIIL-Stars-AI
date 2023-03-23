@@ -37,7 +37,7 @@ I am pursuing my Masters in Natural Resource Management at South Dakota State Un
 
 >> #### Joshua and myself in He Sapa, the homelands
 
-[Me and Josh in He Sapa](IMG_4472.jpg)
+![Me and Josh in He Sapa](IMG_4472.jpg)
 
 ### I am half scientist, half maker
 
