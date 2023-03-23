@@ -35,7 +35,7 @@ I am pursuing my Masters in Natural Resource Management at South Dakota State Un
 > I make to add pieces to my regalia but mostly to give away to family and friends. It is a Lakota lifeway to give and be thankful so I try to emanate that as much as possible. 
 > ### Pics of my work. I really enjoy sharing my pieces.
 >  
-![A Bugs Bunny medallion I beaded for Chaske (eldest son)](BugsBunny.jpg)
+![A Bugs Bunny medallion I beaded for Chaske (eldest son)](BugsBunny.jpg "This is a medallion I beaded for Ikeghe Luta")
 
 ## The Return of the AI
 > It has been quite a journey as one of the first on the ESIIL program. Our first project was COVID - 19 data. Our lives were never the same. Last year we worked on church location data and filling archival gaps in our history on the reservation through this story. Again, my life was not the same after. I see these codes as a new way of bringing medicine to the Oyanke. We can adapt and evolve with these tools the same our ancestors adapted and evolved with new technology of their time. 
