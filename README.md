@@ -1,5 +1,10 @@
-## Han. Mitakuyapi. Welcome to my GitHub. 
-### Wopila for viewing 
+## Elisha Wakinyan Zi GitHub
+
+### A place for storing my code and learning
+
+# Lila Wopila (thank you - I am grateful) for visiting my page. Please refer to the the index.md file to read more about myself, my career, and life. 
+
+### Toksa ake
 
 
 <!--
