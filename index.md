@@ -37,7 +37,8 @@ I am pursuing my Masters in Natural Resource Management at South Dakota State Un
 >> ### This is a Bugs Bunny medallion I beaded for Chaske (eldest son).
 ![A Bugs Bunny medallion I beaded for Chaske (eldest son)](BugsBunny.jpg)
 >> ### An image of the wrists cuffs I beaded myself for my Waci regalia
-<img src="MyCuffs.jpg" width="800" height="1200">
+<img src="MyCuffs.jpg">
+
 ## The Return of the AI
 > It has been quite a journey as one of the first on the ESIIL program. Our first project was COVID - 19 data. Our lives were never the same. Last year we worked on church location data and filling archival gaps in our history on the reservation through this story. Again, my life was not the same after. I see these codes as a new way of bringing medicine to the Oyanke. We can adapt and evolve with these tools the same our ancestors adapted and evolved with new technology of their time. 
 > 
