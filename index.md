@@ -53,6 +53,6 @@ I have one cat daughter named Katalina Inez, a cat son named Johnny Rotten Manaf
 
 ## The Return of the AI
 
-> It has been quite a journey as one of the first on the ESIIL program. Our first project was COVID - 19 data. Our lives were never the same. Last year we worked on church location data and filling archival gaps in our history on the reservation through this story. Again, my life was not the same after. I see these codes as a new way of bringing medicine to the Oyanke. We can adapt and evolve with these tools the same our ancestors adapted and evolved with new technology of their time. 
-> 
-> As an advanved intern, I am so excited to see the project ideas that the students will come up with. It is always so exciting when everyone catches on and the codes start looking pretty. I am looking forward to learning how to do more geospatial analysis in this coding world and getting more comfortable with utlizing it daily. 
+It has been quite a journey as one of the first on the ESIIL program. Our first project was COVID - 19 data. Our lives were never the same. Last year we worked on church location data and filling archival gaps in our history on the reservation through this story. Again, my life was not the same after. I see these codes as a new way of bringing medicine to the Oyanke. We can adapt and evolve with these tools the same our ancestors adapted and evolved with new technology of their time. 
+
+As an advanved intern, I am so excited to see the project ideas that the students will come up with. It is always so exciting when everyone catches on and the codes start looking pretty. I am looking forward to learning how to do more geospatial analysis in this coding world and getting more comfortable with utlizing it daily. 
