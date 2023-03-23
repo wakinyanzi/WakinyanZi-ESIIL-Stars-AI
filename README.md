@@ -1,4 +1,5 @@
-## Elisha Wakinyan Zi GitHub
+## Elisha Wakinyan Zi GitHub Repository for ESIIL Stars 
+Summer 2023
 
 > * a place to store my code
 > * a place to practice my code
