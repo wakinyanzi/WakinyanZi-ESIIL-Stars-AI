@@ -31,9 +31,15 @@ I am pursuing my Masters in Natural Resource Management at South Dakota State Un
 
 > I am the mother of three beautiful adults, Laila, Ikeghe Luta, and Ivy Jade.
 > I have one cat daughter named Katalina Inez, a cat son named Johnny Rotten Manafort Red Corn Cash Depp Yellow Thunder, and a dog son named Codey "python codes" Winkworth. I make my humble home with the love of my life Joshua.
->> ### Codey, Johnny Manafort, and Katalina Inez
+>> #### Codey, Johnny Manafort, and Katalina Inez
 >> 
 ![My babies Codey, Johnny, and Kataline](thebabies.jpg)
+
+>> #### Joshua and myself in He Sapa, the homelands
+
+[Me and Josh in He Sapa](IMG_4472.jpg)
+
+### I am half scientist, half maker
 
 > I am a maker at heart. My brain is scientist, my heart is making. I love to create pieces that Leksi Jhon Goes In Center calls, 
 > **"The art of personal adornment"**.
