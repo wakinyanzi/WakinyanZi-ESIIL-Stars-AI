@@ -44,7 +44,8 @@ I am pursuing my Masters in Natural Resource Management at South Dakota State Un
 > I am a maker at heart. My brain is scientist, my heart is making. I love to create pieces that Leksi Jhon Goes In Center calls, 
 > **"The art of personal adornment"**.
 > I make to add pieces to my regalia but mostly to give away to family and friends. It is a Lakota lifeway to give and be thankful so I try to emanate that as much as possible. 
-> ### Pics of my work. I really enjoy sharing my pieces.
+> 
+> ### Pics of some of my pieces
 > 
 >> #### Bugs Bunny medallion I beaded for Chaske (eldest son). My wrist cuff for my regalia. Fibonacci Sequence for my daughter.
 >> 
