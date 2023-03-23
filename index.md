@@ -14,6 +14,7 @@
 * LinkedIn: Elisha L. Wakinyan Zi
 
 ## About Me
+
 > *Oglala Lakota winyan hemaca na
 makoce wakan kin He sapa heciyantanhan na Wakinyan Zi wicoti kinhan ka
 Wakpamni Lake SD Unci Amelia Yellow Thunder el kichi emacage*
@@ -27,6 +28,7 @@ I am a proud graduate of Oglala Lakota College, receiving my bachelors in Natura
 I am pursuing my Masters in Natural Resource Management at South Dakota State University, Modeling Contaminant Transport for risk assessment in the Arikaree aquifer, the main source of water for the Oglala.
 
 ## *Wiconi Mitawa kin* (My Life)
+
 > I am the mother of three beautiful adults, Laila, Ikeghe Luta, and Ivy Jade.
 > I have one cat daughter named Katalina Inez, a cat son named Johnny Rotten Manafort Red Corn Cash Depp Yellow Thunder, and a dog son named Codey "python codes" Winkworth. I make my humble home with the love of my life Joshua.
 > INSERT PICS OF THE BABIES AND ME AND JOSH HERE
