@@ -34,7 +34,7 @@ I am pursuing my Masters in Natural Resource Management at South Dakota State Un
 > **"The art of personal adornment"**.
 > I make to add pieces to my regalia but mostly to give away to family and friends. It is a Lakota lifeway to give and be thankful so I try to emanate that as much as possible. 
 > ### Pics of my work. I really enjoy sharing my pieces.
->  
+> ### This is a Bugs Bunny medallion I beaded for Chaske (eldest son).
 ![A Bugs Bunny medallion I beaded for Chaske (eldest son)](BugsBunny.jpg)
 
 ## The Return of the AI
