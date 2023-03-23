@@ -29,8 +29,8 @@ I am pursuing my Masters in Natural Resource Management at South Dakota State Un
 
 ## *Wiconi Mitawa kin* (My Life)
 
-> I am the mother of three beautiful adults, Laila, Ikeghe Luta, and Ivy Jade.
-> I have one cat daughter named Katalina Inez, a cat son named Johnny Rotten Manafort Red Corn Cash Depp Yellow Thunder, and a dog son named Codey "python codes" Winkworth. I make my humble home with the love of my life Joshua.
+I am the mother of three beautiful adults, Laila, Ikeghe Luta, and Ivy Jade.
+I have one cat daughter named Katalina Inez, a cat son named Johnny Rotten Manafort Red Corn Cash Depp Yellow Thunder, and a dog son named Codey "python codes" Winkworth. I make my humble home with the love of my life Joshua.
 >> #### Codey, Johnny Manafort, and Katalina Inez
 >> 
 ![My babies Codey, Johnny, and Kataline](thebabies.jpg)
