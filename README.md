@@ -2,7 +2,7 @@
 
 > * a place to store my code
 > * a place to practice my code
-> * a place to store my code
+> * a place to share my code
 
 # **Lila Wopila (thank you - I am grateful) for visiting my page. Please refer to the index.md file to read more about myself, my career, and life.** 
 
