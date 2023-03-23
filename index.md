@@ -10,8 +10,8 @@
 ## Contact Information
 * Email: eyellowthunder@gmail.com
 * Cell phone: available upon request
-* Slack: Elisha YellowThunder [Slack](https://app.slack.com/client/T013ZA21V8E/C022FNCA6EQ/rimeto_profile/U0235EQNG6L)
-* LinkedIn: Elisha L. Wakinyan Zi
+* [Slack](https://app.slack.com/client/T013ZA21V8E/C022FNCA6EQ/rimeto_profile/U0235EQNG6L): Elisha YellowThunder
+* [LinkedIn](https://www.linkedin.com/feed/): Elisha L. Wakinyan Zi
 
 ## About Me
 
