@@ -32,7 +32,7 @@ I am pursuing my Masters in Natural Resource Management at South Dakota State Un
 > INSERT PICS OF THE BABIES AND ME AND JOSH HERE
 > I am a maker at heart. My brain is scientist, my heart is making. I love to create pieces that Leksi Jhon Goes In Center calls, *"The art of personal adornment"*.
 
-![My wrist cuffs for my regalia](IMG_1318 (1).jpg)
+![My wrist cuffs for my regalia](IMG_1318(1).jpg)
 
 > I make to add pieces to my regalia but mostly to give away to family and friends. It is a Lakota lifeway to give and be thankful so I try to emanate that as much as possible. 
 ## The Return of the AI
