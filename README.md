@@ -1,8 +1,10 @@
 ## Elisha Wakinyan Zi GitHub
 
-### A place for storing my code and learning
+> * a place to store my code
+> * a place to practice my code
+> * a place to store my code
 
-# Lila Wopila (thank you - I am grateful) for visiting my page. Please refer to the the index.md file to read more about myself, my career, and life. 
+# **Lila Wopila (thank you - I am grateful) for visiting my page. Please refer to the index.md file to read more about myself, my career, and life.** 
 
 ### Toksa ake
 
