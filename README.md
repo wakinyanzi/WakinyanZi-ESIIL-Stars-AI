@@ -1,4 +1,6 @@
-### Hi there 👋
+## Han. Mitakuyapi. Welcome to my GitHub. 
+### Wopila for viewing 
+
 
 <!--
 **wakinyanzi/WakinyanZi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
