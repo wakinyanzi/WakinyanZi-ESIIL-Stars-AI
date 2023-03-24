@@ -1,7 +1,7 @@
 
 # **Elisha Wakinyan Zi**
 
-<img src="selfie_maine.jpg" alt="Indians In Unexpected Places" style="width:400px;height:600px;">
+<img src="selfie_maine.jpg" alt="Indians In Unexpected Places" style="width:600;height:400px;">
 
 [MyGitHubProfile](https://github.com/wakinyanzi/WakinyanZi)
 
