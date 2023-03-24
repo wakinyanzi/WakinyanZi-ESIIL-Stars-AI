@@ -1,7 +1,7 @@
 
 # **Elisha Wakinyan Zi**
 
-<img src="selfie_maine.jpg" alt="Indians In Unexpected Places" style="width:600;height:400px;">
+![Me in Portland, Maine for the EPSCoR Conf](selfie_maine.jpg)
 
 [MyGitHubProfile](https://github.com/wakinyanzi/WakinyanZi)
 
