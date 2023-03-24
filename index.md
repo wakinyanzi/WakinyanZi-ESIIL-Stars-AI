@@ -1,7 +1,7 @@
 
 # **Elisha Wakinyan Zi**
 
-![My babies Codey, Johnny, and Kataline](thebabies.jpg)
+![Me in Portalnd, Maine for the EPSCoR Conf](selfie_maine.jpg)
 
 [MyGitHubProfile](https://github.com/wakinyanzi/WakinyanZi)
 
