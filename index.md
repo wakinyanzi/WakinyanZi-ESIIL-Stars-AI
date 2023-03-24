@@ -1,7 +1,7 @@
 
 # **Elisha Wakinyan Zi**
 
-![Me at the EPSCoR/NSF conference in Portland, Maine. 2022](selfie_maine.jpg)
+<img src="selfie_maine.jpg" alt="Indians In Unexpected Places" style="width:400px;height:600px;">
 
 [MyGitHubProfile](https://github.com/wakinyanzi/WakinyanZi)
 
