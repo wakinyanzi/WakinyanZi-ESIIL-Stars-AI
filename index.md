@@ -1,7 +1,7 @@
 
 # **Elisha Wakinyan Zi**
 
-![Me in Portalnd, Maine for the EPSCoR Conf](selfie_maine.jpg)
+<img alt-text="Me in Portland, Maine" src="selfie_maine.jpg" width="50%" />
 
 [MyGitHubProfile](https://github.com/wakinyanzi/WakinyanZi)
 
@@ -36,7 +36,7 @@ I have one cat daughter named Katalina Inez, a cat son named Johnny Rotten Manaf
 
 >> #### Joshua and myself in He Sapa, the homelands
 
-![Me and Josh in He Sapa](IMG_4472.jpg)
+<img alt-text="Me and Josh in He Sapa" src="IMG_4472.jpg" width="50%" />
 
 ### I am half scientist, half maker
 
