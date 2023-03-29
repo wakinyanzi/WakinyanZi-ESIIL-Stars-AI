@@ -1,5 +1,4 @@
 
-# **Elisha Wakinyan Zi**
 
 <img alt-text="Me in Portland, Maine" src="selfie_maine.jpg" width="50%" />
 
